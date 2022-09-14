@@ -1,1 +1,0 @@
-# sehirler-arasi-nakliyat
